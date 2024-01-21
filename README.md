@@ -12,9 +12,9 @@ If you cant get our software -
 
 ***✅Anti AFK integration***
 
-![2](https://github.com/abdallahelbtal6/Albion-Online-Menu/assets/75962310/78b640dd-e838-48df-aaba-c904cab92b11)
+![2](https://github.com/abdallahelbtal6/Albion-Online-Menu/assets/75962310/13ccd5c8-c6bc-4679-899c-08d0fa365e66)
 
-![3](https://github.com/abdallahelbtal6/Albion-Online-Menu/assets/75962310/8e505bed-9188-40cc-9baa-b4b025d1e7a6)
+![3](https://github.com/abdallahelbtal6/Albion-Online-Menu/assets/75962310/836b1d7c-8765-40bf-939b-7004b280b74b)
 
 #  Ｆｕｎｃｔｉ⚙️ｎｓ:
 
